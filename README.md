@@ -13,4 +13,8 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
--->
+--> Welcome to my page 
+**I am not sure what to add on here other than I really ejoy this**
+
+***This text is important***
+
